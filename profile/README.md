@@ -10,5 +10,5 @@
 
 🌍 **Community Spirit**: We value diverse perspectives and creativity. Everyone is invited to think outside the box!
 
-🔗 **Join the Movement**: Help us in #ReconnectingCommunities, *#RethinkingProcesses*, and *#ReducingWaste*. Be a part of our journey to *#EndHunger* and promote *#SustainabilityHeroes*. Let’s make a meaningful impact together! *#WasteNoMore*
+🔗 **Join the Movement**: Help us in *#ReconnectingCommunities*, *#RethinkingProcesses*, and *#ReducingWaste*. Be a part of our journey to *#EndHunger* and promote *#SustainabilityHeroes*. Let’s make a meaningful impact together! *#WasteNoMore*
 
