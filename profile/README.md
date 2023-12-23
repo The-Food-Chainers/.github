@@ -4,7 +4,7 @@
 
 🌐 **CITE**: We Are a Collective Intelligence Token Ecosystem. Cite us using our Token ***#CITE***
 
-🌟 **Get Involved**: Share your ideas and join us in tackling f🔗d scarcity and waste. We’re powered by the #CollectiveIntelligenceToken, rewarding innovative solutions. Join us on [LinkedIn](https://www.linkedin.com/company/the-food-chainers) and our [website](http://thefoodchainers.io).
+🌟 **Get Involved**: Share your ideas and join us in tackling f🔗d scarcity and waste. We’re powered by ***#CITE*** the ***#CollectiveIntelligenceTokenEcosystem***, rewarding innovative solutions. Join us on [LinkedIn](https://www.linkedin.com/company/the-food-chainers) and our [website](http://thefoodchainers.io).
 
 📚 **Resources & Updates**: Check out our upcoming collective White Paper and stay tuned for more exciting developments.
 
