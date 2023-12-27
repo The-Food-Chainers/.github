@@ -1,3 +1,4 @@
+![Banner](the-food-chainers-banner.png)
 ## The F🔗d Chainers: Innovating for a Sustainable Agri-F🔗d Future
 
 🙋‍♂️ **Welcome to The F🔗d Chainers** ***#WeAreChainers***: A movement dedicated to revolutionizing the agri-f🔗d industry through innovation and collaboration. *#AgriFoodRevolution*
